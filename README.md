@@ -1,6 +1,6 @@
 # About Me
 ![image](PF.JPG)
-My name is Korawat Plainsuwn.
+My name is Korawat Plainsuwan.
 
 My nickname is San. I am 20 Year old.
 
